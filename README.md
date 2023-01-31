@@ -1,9 +1,7 @@
 # Bypass-Two-Factor-Authentication-on-Facebook
 
-How to Bypass Two-Factor Authentication on Facebook 
-<br>
 Facebook is a major social network that is used all over the world. Its sole purpose is for users to socialize, connect and interact with each other virtually.<br>
-This Tool Can be Help To:- <a href="https://www.recoverfb.tk/"> Bypass Two-Factor Authentication on Facebook</a><br>
+This Tool Can be Help To:- <a href="https://www.recoverfb.tk/"> Bypass Two-Factor Authentication on Facebook</a><br><br>
 It is the most used social media network with more than two billion active users and availability in 130 of the 137 countries analyzed. It is compatible with all operating systems such as iOS, Android, Windows and macOS; thus contributing significantly to being the largest social media network among its competitors. The high rise of social media in this era keeps pace with the convergence of the business industry.<br>
 ![image](https://user-images.githubusercontent.com/123932312/215666300-7b60f1a4-a036-45d4-982a-eeaf3ad39e25.png)
 <br>
